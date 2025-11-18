@@ -7,3 +7,14 @@
 * Develop and training model
 * Model deployment
 
+### Event hari ke 1
+https://www.youtube.com/watch?v=-a7_gglMnBw&feature=youtu.be
+
+### Event hari ke 2
+
+
+### Event hari ke 3
+
+
+### Event hari ke 4
+
