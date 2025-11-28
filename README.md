@@ -14,7 +14,7 @@ https://www.youtube.com/watch?v=-a7_gglMnBw&feature=youtu.be
 https://www.youtube.com/watch?v=YDEEZwi9U2I
 
 ### Event hari ke 3
-
+https://www.youtube.com/watch?v=eIsDEiFqmnU
 
 ### Event hari ke 4
 
